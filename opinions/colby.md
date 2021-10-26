@@ -1,1 +1,1 @@
-waffles are superior to pancakes
+waffles are superior to pancakes.
